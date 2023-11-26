@@ -1,0 +1,2 @@
+# projoni
+dekor dhe aksesore
